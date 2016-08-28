@@ -42,3 +42,9 @@ http://codepen.io/omidgharib/pen/IqdLj
 http://codepen.io/rachsmith/pen/BNKJme ---
 
 http://codepen.io/soulwire/pen/mErPAK ---
+
+http://codepen.io/guardian/pen/EjeXOZ ---
+
+http://codepen.io/Tbgse/pen/dYaJyJ
+
+
