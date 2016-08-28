@@ -49,6 +49,8 @@ http://codepen.io/neilcarpenter/pen/LstCD ---
 
 http://codepen.io/wagerfield/pen/wftcE ---
 
+http://codepen.io/KevinChassagne/pen/OPzNPz ---
+
 http://codepen.io/Tbgse/pen/dYaJyJ
 
 http://codepen.io/MyXoToD/pen/fmjbg
