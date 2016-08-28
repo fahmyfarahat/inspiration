@@ -26,3 +26,10 @@ http://codepen.io/bojankrsmanovic/pen/xOANLL
 http://codepen.io/karpovsystems/pen/mwHKj
 
 http://codepen.io/eneox/pen/KgaIl
+
+http://codepen.io/sirnightowl/pen/QwqWGp
+
+http://codepen.io/tmrDevelops/pen/dPzGqV
+
+http://codepen.io/siamon123/pen/xGWQXJ
+
